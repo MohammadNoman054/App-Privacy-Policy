@@ -1,4 +1,4 @@
-**Privacy Policy for Fruit Catcher**
+**Privacy Policy for Fruit Catcher**<br />
 Effective Date: 24 June 2024
 
 **Introduction**
